@@ -1,375 +1,435 @@
-Doll Time Ch. 06
+Doll Time Ch. 07 (Final)
 
-He approached the doll, his eyes flitting back and forth between the sign and the doll itself, coming to terms with all that was implied in the tableau presented neatly to him on his bed.
+Andy paced back and forth in his backyard, glancing every so often towards his bedroom. The curtains were closed, completely obscuring his room, which was necessary for Helena to move. He fidgeted, checked his phone for the fourth time in the last five minutes, then put it back in his pocket and sighed. He leaned back against the wall and slowly slid down to the ground.
 
-"Helena?" He asked out loud. The doll did not respond nor move. No communication, except for the sign between its legs.
-
-But this was unmistakable. The doll was alive. It could certainly move. SHE could move. Either Andy had fully snapped, or the doll could move. Hell, she could write! Which means the times he had sex with her... She was present? Conscious? Had he unknowingly raped her? He felt his throat burn with guilt. Did she hate him? But the note said differently! Did she... want him? Was she even Helena or someone/something else entirely?
-
-There were too many questions, too much he didn't know. He climbed onto the bed, getting closer to the doll.
-
-"There's someone in there... Isn't it?" He asked the doll again. No response. "I... I left it in the closet, I know it! Or rather, 'she' was in the closet. And the sign..." He touched the doll's face, then moved it so she would face him, her blank eyes looking through his presence. "If you're in there, please talk to me. Please. Just tell me what's going on. If you're Helena... Or if you're not. Whoever you are! If you can just... Talk to me. Tell me that you can hear me. Please..."
-
-Still nothing. He shouted at the doll. He pleaded that she respond to him, or give him a sign. Something, anything, just so he knew that he wasn't going mad. To tell him what was going on. Asking her again if she was the real Helena, the one that had gone missing from her parents' house a few days ago.
-
-Silence. Complete and utter stillness in her eyes, and her lips. Only the sign, that read:
-
-USE ME
-
-IT'S OK
-
-He searched again for the leaflet that came with the doll and re-read it, trying to see if he had missed something. The leaflet promised him pleasure. There was the customer support number. And...
-
-Remember: Observation ensures stasis.
-
-He re-read the sentence, an idea forming in his mind. All the times the doll had "moved" he was either away or asleep. Was that it? Was this the problem?
-
--
-
-Helena felt a distant resignation that she had ruined things. Ever since he first caught her moving, it creeped him out. He stopped using her, which she increasingly missed. She enjoyed when he was using her multiple times a day, when he filled her with his warmth and pleasure. But now he recoiled from her, and she had lost her purpose.
-
-She was sure he would get rid of her now. She had ruined it. Would this Doll Time give her to someone else? Maybe they could deliver her to a new owner, like they had done to Andrew. And this time she would behave and never move and they would use her as much as they liked.
-
-It was a shame. She had grown to like him. Certainly not love, too strong a word for what they shared, but she enjoyed being with him. Hopefully Doll Time could match her with someone else, maybe she would even grow to like them, as she did with Andrew. She didn't feel much emotion in her doll body, but at least she was still able to hope.
-
-Andrew reappeared in her field of vision, but this time he was not upset. Instead he had a notepad in his hands, and a determined expression in his face.
-
-"I have three questions that I need you to answer. Please," he spoke, facing Helena. His hand gripped the notepad so firmly it trembled slightly, but he still turned it to face her. There were questions written on the notepad.
-
-"First... I need to know if you're Helena. Helena who goes to the same university as me. Cedar Creek University? Same calculus class..." He pointed towards the first question as he read. After a pause, he moved on. "Second. Uh... How did you become a doll? I... I want to know. This feels crazy to me! It's... Shouldn't be possible!" He sighed. "Were you made? Born? Was... Was it consensual?" He frowned, looking down while hesitating. The familiar guilt was there again. "And... Third question." He swallowed nervously. "Did... Oh god. Did I hurt you? When I..." He swallowed again. "When I... Entered you. Used you. Had sex with you. Did I... Did I hurt you? Or make you feel terrible? Did I... Did I upset you?"
-
-His face was now red, in his usual cute and embarrassed way. But she could see the stress this situation was causing him and, dulled as her emotions were, she still felt bad. Helena did not like hurting people. Had he raped her? In a way, he had. It's true, she supposed. But she was not upset or hurt, if anything she wanted him to rape her more.
-
-This thought came to her, dispassionate as any other, but it still surprised herself. Was she broken, somehow? By her family, her trauma? Or was it the fault of this situation, this new doll body that she inhabited twisting her mind somehow?
-
-"I'll leave the house now. And leave you alone, for about... 15 minutes?" He placed the notepad, along with a pen, in her hands. "If you need more time, just write... At least one answer. Please."
-
-His eyes flickered to the sign she wrote, then back at her. Andrew took a deep breath. "If you answer these questions...? And if you'd like. I can... I can use you. After." He flushed even redder than before. "I, I mean, if you want! If not that's ok! I don't want to... I, um... Anyways!"
-
-He fled the room after one last glance at her. She heard him close the bedroom door and walk further away. In the distance, another door opening and closing. The turn of a key on a lock.
-
-In the silence of the empty house, she could now move again. Helena looked at the notepad and the pen, and felt another stir of emotion within her. Expectation. Nervousness.
-
-She could communicate with him this way. Not directly. Maybe not perfectly. But still! This was the first time she would talk privately with a guy in... Ages. Since she was little. She had always been so afraid that her stepfather would find out. And now here she was, alone with a guy that had known her body intimately. She had known the shape of his cock before she learned his taste in music, so completely backwards from how it should be.
-
-And now he wanted answers.
-
-Haltingly, she gripped the pen and began to write.
-
--
-
-Andy paced nervously in circles in front of his house. He had forced himself to go around the block twice already, to kill time and spend that nervous energy bubbling within him as he waited until the time was up. When he checked the phone again and saw it was time he rushed to the front door, ran to it, and hurriedly turned the key and entered.
-
-When he opened the door to his bedroom the Helena doll was still on the bed, propped against the pillows, with the notepad in her hands. But her pose was different, she was holding the pen now. Andy quickly went for the notepad and read it, and he felt his heart beating so fast it felt the thing was going to burst out of his ribcage. There were answers! Written answers below the questions, in shaky handwriting, but still legible! She had answered him!
-
--Q. -
-
--Are you Helena?
-
--A.-
-
--Yes-
-
--Q. -
-
--How did you become like this?-
-
--A.-
-
--Don't know. Was surfing the web. Ad popped up. Accepted. Woke up like this.-
-
--Q. -
-
--Did I hurt you?
-
--A.-
-
--It felt amazing. Please use me more.-
-
-He read and re-read her answers, wrapping his head around what her terse responses implied. She WAS Helena then! And she had been turned into a sex doll...? Somehow? She didn't know either! And her last response? It stirred something in him, as the first roll of the pebble that brings down the avalanche.
-
-"Is... It really ok?" He asked her out loud. No response. Did he have to ask again? But she said yes! And he was so frustrated and pent up that the thought of using her again stirred a hunger in him, a burning need he could no longer ignore. And she was right there! He still hesitated, but resistance was brief.
-
-He lunged, quickly unbuttoning and pulling her clothes away. Barely did he even unclothe himself, just enough to let his cock out before he pushed against her wet entrance and plunged inside. The familiar sensation, so addictive and delicious, immediately gripped him, body and mind.
-
-Lust overtook him, he thrust in and out of her with the passionate frenzy of a man who had been frustrated for days, making the bed creak and the doll shake with every deep thrust. But he caught the doll's face, still blank as always, and felt a wave of guilt.
-
-He could no longer fool himself, this was Helena. A person. Somehow, there was a real person inside that doll. And worse, she couldn't even speak to him now, or move. Trapped as she was, she couldn't possibly take away her consent, if she changed her mind. She had been encouraging in the message, but what if it wasn't true? A trick of some kind.
-
-Guilty tears welled in his eyes, but his body betrayed him, thrusting even harder inside her as he felt himself throb with pleasure, too great to be ignored. "I'm sorry," he gasped, looking down at the doll as he kept thrusting, his guilt paradoxically only fueling his desire rather than stopping it.
-
-It was wrong. He knew it. But he couldn't get himself to stop. "I'm sorry. Fuck. I'm so sorry!" He moaned, thrusting so hard Helena's head rocked back and forth from the force.
-
--
-
-Helena was on the throes of another orgasm, blacking out briefly from the pleasure. And when she came to, she heard Andrew's apologies spilling from his lips as he filled her insides with what she craved so much. And all she could ask for in that moment is more, for him to use her more, even harder, even rougher. There was such a powerful simplicity in that moment. She wasn't a perfect daughter, she didn't have to laugh and pretend everything was fine. She didn't have to hide her tears. No suffering.
-
-She was a fuckdoll, existing only to give pleasure and receive pleasure. Perfect in its purpose. And with no knowledge of how sadness felt like.
-
-Atop her, Andrew kept thrusting deep inside her, despite the apologies, and after one long, deep thrust she felt his throb, tense up, and then she felt his seed spill inside her, hot and intoxicating, triggering another orgasm in her mind as her body remained limp and unresponsive. She luxuriated in it, basked in that delicious ecstasy as she felt him slow, leaning on her body as he collapsed from exhaustion.
-
-"I'm sorry..." He whispered, close to her ear. She felt his arms embrace her tenderly, and when his cheek touched against hers it was wet with tears. "Even if you told me it's ok... In your situation... I don't feel using you is right. But... Fuck. It feels so good." He hugged her tighter, although there was still no pain. Only his warmth, his presence, close to hers. "You said it was ok, right? You wanted this?" He gave her shoulders a squeeze. "Please tell me it's ok. Tell me I didn't hurt you. When you get the chance. Please."
-
-And his guilt, somehow, felt comforting. In her mind it showed that he cared for her, that he considered her feelings enough to feel bad, even as he filled her with so much pleasure. The contrast between how roughly he had taken her before and how sweetly he embraced her now, perversely, she enjoyed almost as much as the sex itself. This sweet, guilt-laced comforting aftercare. Was that strange?
-
-Maybe she was the broken one.
-
-But she couldn't bear to stop, to not be used. And even as he broke from her embrace, and gingerly began to clean her body and adjust her, she already yearned to be used again.
-
--
-
-Their communication resumed after he cleaned her, and the first thing Andy asked was if she was alright, to which she reassured him that she was. There was no true consent while she was a doll, he told her. But she reassured him, and he allowed his worries to be quietly minimised by her words. He quickly accepted this balm, as the alternative was too painful for him to dwell on.
-
-They found slowly, as they exchanged messages, that he did not need to fully leave the house. Going to the backyard and closing the blinds to the bedroom window was enough. The key was that he could not see or hear her, either would make her body freeze and he would return to a message half-written. But slowly, they managed to make themselves understood to each other.
+Helena had announced to him she was staying indefinitely as a doll. What followed was a series of messages exchanged between them, each punctuated by tense moments when he waited outside for her to write back, sitting on the ground as he tapped his foot nervously, waiting for her answers.
 
 -Q.-
 
--Can I help you turn back to being a human?-
+-All you need is to want to be human again, Helena. Don't you want that?-
 
 -A.-
 
--Sorry I don't know how.-
+-No.-
 
 -Q.-
 
--Do you want me to call customer support and return you? Do you think that would help?-
+-Why don't you want to go back to being human?-
 
 -A.-
 
--No. Please don't.-
+-I'm happier as a doll.-
 
 -Q.-
 
--What about your family? They're looking for you.-
+-Think of what you'll be missing! The things you'll never be able to do! Talk to people. Visit places. See Beth again.-
 
--A.-
+-A. -
 
--I don't want to go back-
-
-Andy frowned, looking at the answer written on the notepad as he considered how to approach the topic. Beth, Helena's friend, her words lingered in his mind. 'She was not happy at home.'
-
-"Do you want me to pass on any message to someone else? I met Beth, by the way, while I was... Uh, helping your family look for you. She told me that, if I ever met you, to tell you that she's worried about you, and she hopes you're happy."
+-Don't do this to me. I thought a lot. STILL better to be a doll.-
 
 -Q.-
 
--Do you want me to pass on any message to anyone?-
+-I don't understand. Why?-
 
 -A.-
 
--Tell Beth I'm ok. She was an amazing friend!-
+-When I was human, was still treated like a doll. At least now there's no pain -
 
--Q.-
+Andy gripped the notepad in his hands so tight it crumpled slightly as he read her answer. "I... I'm sorry," he said to her. "That you went through... Well... That your life was so difficult... So painful! That you'd feel this is an improvement? That's... That's crazy!"
 
--Nothing for your family? They seemed worried.-
+He looked at Helena, who was still as always, but immediately regretted his words. They felt condescending, wrong. Damn! What could he say - what combination of words he could conjure - that would make Helena realize that life as a person was still worth it? Or to make her... Value herself more? Her message made him feel like a lump of sadness was stuck in his throat and it wouldn't go down no matter how hard he swallowed. "I... Just want to help!"
 
--A.-
+He begun to write 'Were your parents that bad?' But stopped himself, looking at the crumpled notepad, getting increasingly used from their conversations. Did he want to ask that question? Was he ready for what she would answer?
 
--They're good at seeming.-
+So he scribbled out his question, and wrote another one as he asked her out loud. "Is there anything I can do then, to make your human life better? If you came back... Could I help you be happier then? Be your friend? Help you move away from your family? Do something for you? I... I don't think being a person means always suffering. It can't be ONLY pain!"
 
-Andy swallowed nervously, digesting the implications of her reply. He first sent a text message to Beth. It read: 'About what you said when we last met? I think Helena is ok. And I think she would say you always were an amazing friend.' Vague enough to not be suspicious, but still able to get her intentions across, or so he hoped. She replied with 'thanks! I'll always be here :) ' and that was that.
+Q.
 
-"Alright, I let Beth know so... For now I guess we wait. Or... Can I do anything for you? To make you more comfortable or...? Do you get bored? Wait, hold on, let me write down my question!"
+Is there something I could do that would make you value life as a human more?
 
--Q.-
+A.
 
--Can I help you in any other way?-
+You don't have to. If it's too much for you, just return me. It's ok.
 
--A.-
+He read her answer and felt the lump in his throat grow more painful and bitter. He looked at Helena, almost pleading her to reconsider, increasingly uncertain of how he could reach her. Helena's face remained blank and unmoving, giving him no answers.
 
--Use me more-
-
-Andy's face grew red, despite himself. He always blushed so quickly, got embarrassed so easily, and of course this only made him more embarrassed. "I, uh..." He cleared his throat. "I can't go again so soon after... Last time. Is there anything else I can do?" An idea crossed his mind and lit up his face. "How about some TV? Any shows you were watching lately?"
-
--Q.-
-
--Anything else I can do?-
-
--A.-
-
--TV is ok-
-
-She wrote some of the shows she was watching, before Doll Time, and he nodded to himself while looking at the titles. He knew he had some of them on his family's multiple subscriptions. With some effort, he slowly picked her body up and carried her to the living room, propping Helena on the sofa and adjusting her head to face the screen. Thankfully her body was not too heavy, another effect from being a doll, he supposed.
-
-"Alright!" He smiled at her. "I'll start playing from the last episode you watched and then leave the room! I might have to pass by when I'm doing chores and such... But I'll try and leave you be. So you can move by yourself. Change the show or... Do whatever." He then placed the notepad on her lap. "I'll try to check up on you now and then. If you need anything, write here. And..." He hesitated. "Yeah. I just want to make sure you're ok. And... And that you're happy." He smiled. "That's what Beth would want for you." He looked away and muttered, under his breath. "What I want..."
-
-He hit play on the remote control and gave her one last glance. No reply of course. He nodded and left the room.
+"Listen..." He told her. "I... Before we consider this any more, whether you stay with me or you... Whatever happens. There is one big favor I want to ask you." He took a deep breath. "It's really important. Can... Can you do this one thing for me?"
 
 -
 
-As the intro to her show flashed on the screen she found she could move again, settling more on the couch. It was almost like she was human again. It reminded her of the quiet, simple moments she enjoyed on her own. When she could relax, away from her family. But this time she didn't have to be afraid of going back.
+There was a knock on the front door. Andy quickly rushed to it and opened, revealing Beth on the other side with a wary expression. "Hey," she said, peeking curiously behind him. "Is Helena in here with you?"
 
-Here, now, she was at peace.
+"Come in," he ushered, trying to look calm. "I... Have something to tell you. But I'm warning you ahead of time. It's a lot."
 
--
+"Okay?" She cautiously entered his house, letting him close the door behind her.
 
-Andy gritted his teeth as the phone rang in his ear. Why did he always have to get so nervous? Again! Every single time!
+He nodded. "Yeah. She's here, actually. But before you see her... There's this thing. But it's going to sound crazy right? So, I need you to trust me here. Because, well... You know I told you the story of you and Helena, how the first time she snuck a can of beer into the dorm..."
 
-Badumpadumpadumpa-beep-dumadumpadump-beep-adumpadumpadump-bee- *click*
+"... For us to share, she acted like she was committing a crime and acting all scared... Until I showed her the vodka in my fridge." Finished Beth. "Yep, and only I and Helena were the ones that knew this story... Unless she told you. Which is why I'm here." She raised her thick eyebrows at him. "You don't think I'd come to the house of a guy I don't even know just because he asked, did you? So... Yeah. Cool. What's going on?"
 
-"Hello, Doll Time customer service. How can I help?" Another voice, female but just as tired and bored as last time, the barest hint of professionalism keeping a yawn in check.
+"I... I just want you to give me the benefit of the doubt, ok? I swear it's not a joke or a prank or... It's not something weird!"
 
-"Hi, Um," he silently cursed himself for being so tongue-tied, forcing the next words out of his mouth. "Sorry, but is there a way to turn someone back? I mean... back from a doll, into... Well, who they were before...? As in... Not a doll..." His words died in his mouth.
+She narrowed her eyes, looking at him. "Getting weirder by the minute..." She huffed impatiently from her nose. "By the way, I let someone else know I'm here, with address and everything. They're expecting me to be back in a few hours or so. If-"
 
-"Are you asking about our Doll Time customers, sir?"
+"Helena's been turned into a doll!" Andy blurted the words out before the regret could fully sink in. But the microsecond after the last syllable escaped his lips his face grew pale and he shut his mouth, all to no avail. The shame descended on him like the wrath of heavens, a lightning strike. He didn't have a chance.
 
-"Yes! I mean... About Helena. She was turned into... Into a doll." When he said it out loud, it sounded stupid. He braced himself for the operator to call him silly, or to hang up on him.
+"Huh?" She raised one eyebrow.
 
-"If the client files a complaint or if the free trial runs out before being renewed then we return the client to the way they were before. But that is at the sole discretion of the client. All you are allowed to do is return the client to us, so we can hand her to a different match." A pause, the distant sound of click-clacking keys in the distance. "Do you want to return a doll, sir?"
+"A-a-and she can't mo-move when p-people... when... Nobody's looking," he stammered. "I mean...H-here! Come here!" And he pulled an increasingly skeptical and alarmed Beth into his bedroom, where she looked inside and immediately froze.
 
-"What? No! No, she... She asked me not to." Andy frowned. "So, when the trial ends she'll go back to normal?"
+"... Is that Helena?" She asked, her brows furrowed in disbelief.
 
-"Yes, sir."
+She took a tentative step, then another, closer to the doll sitting on the bed, with a notepad in one of her hands. The note read, in large letters:
 
-Andy blinked, letting out a sigh. Hearing that answer, even from a bored customer service operator, seemed to lift an immense burden he didn't know he was carrying.
+HI ELIZABETH
 
-"I see," he replied. "But... What if she calls you? Can she go back to normal then?"
+SORRY I HAVEN'T TEXTED YOU THIS SUMMER LIKE I PROMISED
 
-"Not necessary, sir," said the operator, her voice hiding an edge of frustration. "All the client needs to do is wish to return. That's all."
+"What the fuck -"
 
-Andy whet silent for a moment, trying to understand what was explained to him. Had he heard right? There must be a misunderstanding. "I... I'm sorry? What do you mean?"
+"I kno- I know how this looks!" Interrupted Andy, panicking. "But it's true! Look, trust me! Just... Take this notepad. Write one question you want to ask Helena. Just one!" He gestured to Helena, sitting completely still. "If we go to the backyard for a little bit, about 5-10 minutes, she will write back an answer. I promise!"
 
-An impatient huff from the other end of the line. "If a doll wishes to end Doll Time then it ends. Automatically. No need to call."
+There was a moment of silence, Andy silently pleading at Beth, who went through a gamut of emotions, from shock to incredulity, disgust, curiosity and finally confusion.
 
--
-
-The day was now almost over, and Andrew walked into her field of vision, almost apologetically. "Hey, Helena! Everything good? Lemme see here..." He asked, before glancing at the notepad beside her. She had left a message for him.
-
--Want to use me now?-
-
-"Oh! I, umm..." And his cheeks flushed while he looked away. She enjoyed that moment of hesitation, because she knew what it meant. It's incredible how familiar she was becoming with Andrew, and his mannerisms.
-
-"Listen, I.. I don't want to bring up a sore point or anything..." He fidgeted, looking uncomfortable. "About your... Your life? Back home? If you want to take a break from it? I get it. You can stay here. My family won't be back until the 3rd of August, so you can stay the next 7 days of the free trial..."
-
-Memories of her family seeped in, like blood from under a door, staining her mood something dark. And although she couldn't move, she felt her soul recoiling, bracing itself for rejection. Waiting for the 'but...' that was coming after that sentence.
-
-He sighed. "But you don't have to do anything for me. Like... Having sex - or rather letting me have sex with you... I guess - you don't have to do that! I don't want you to feel forced to do anything for me in exchange for letting you stay here! Look... I didn't know you before this. And I feel I still don't? And... I'm not sure what is going on between you and your family. But I can tell it's... Painful. And... And I'm sorry that I didn't know before. And for using you like that, I... I feel guilty. In so many ways. I want to make it right to you. I want you help you. And if this comes too little too late...? Then let me at least do what I can. For now. For you."
-
-He looked at her, earnestly, but she could not reply, even as she was bemused and slightly touched by his declaration. After a moment he coughed awkwardly and placed the notepad next to her again. "I'll go and give you time to write a reply. I... Whatever you choose, I will support you, ok?"
-
-And he left, and she was alone with her thoughts.
-
-What was this feeling welling up inside her? It wasn't sadness, or joy, or even lust, although a bit of all three were mixed in this swell that disturbed the placid waters of her heart, which had stilled so deeply when she became a doll.
-
-She appreciated Andrew's words and wished she could hug him. To show him her appreciation in a tangible way, rather than words on paper or a lifeless stare. But with that appreciation came more complex, painful feelings, things she didn't want to consider. Feelings of dread when she thought of returning home, fear that this joy would end, that her heart would soon be flesh and blood again, so fragile, and sensitive as a raw nerve. And what would feelings for him become, in such an environment?
-
-She didn't want this. She wanted to keep going as they did. Him using her as a sex doll. No complications, no feelings. Only pleasure.
-
-And so, a few minutes later, he walked back to see Helena lying on the couch, the notepad lying on her stomach. He picked it up, and read what she had written.
-
--That's very sweet. But I like it when you use me <3-
-
-"Ah," said Andy, swallowing nervously. "Hmm," he added.
-
-Moments later he had her on the couch with her head upside down, making her throat straight and freely usable. And although at first he entered her slowly, concern radiating on his face, she felt a gleeful pleasure in seeing him quickly lose control and start thrusting faster and harder.
-
-"Fuck... Fuck!" He grunted, fucking her throat roughly. His pelvis hit her chin and nose with every hard thrust as a mixture of her thick drool and his juices dribbled down her face. But she didn't mind, even as some juices spilled onto her eye, because she felt no discomfort or any need to breathe. Nothing but pleasure.
-
-And pleasure did radiate from her mouth, like a wave that somehow reached her abdomen and would have made her curl her toes and roll her eyes, if only she could move. She felt his thick manhood stretch her throat, tasted the salty musk of him all over her mouth, and when the overpowering orgasm swept her mind she let it. She loved being used.
-
-"You feel... So fucking good!" He grunted, relentlessly using her throat while pinning her head with both hands so it wouldn't move. She felt him throb deep down her throat, saw him hesitate briefly.
-
-"Oh shit!" He tried pulling out of her last second, only to instead spray her face with his warm cum, spurt after spurt of it. And Helena silently basked in her post-orgasmic bliss as she felt it land on her face and the mixture of cum and drool slide down her expressionless face and onto her hair.
-
-"Oh no... I'm sorry," whispered Andrew, concern and guilt in his breathless voice. "Shit I... I didn't mean to!"
+"Okay..." She finally said, breaking the frozen moment. "I'll play along."
 
 -Q.-
 
--Sorry! I got carried away.-
+-What was the show I introduced to Helena when we first hung out?-
+
+She scribbled the question on the notepad, then placed it on the table beside the bed. Andy nodded eagerly and made sure to point out to her that there was nobody else in the house, before the two went outside to wait for a few minutes. Beth kept her distance from him as they waited, never taking her eyes off for a second. "This is so stupid... I swear if it's your idea of a prank..."
+
+"It's not! I swear, I'm dead serious!" Panicked Andy, before he resumed the nervous habit of tapping his foot as he waited until the alarm on his clock finally beeped.
+
+Inside Helena was still on the bed, but she had a different pose, one hand raised and doing a V pose next to her face. Below, written in the notepad, was:
 
 -A.-
 
--I loved it!-
+-I'll never forget Sailor Moon! It's really me, Elizabeth. Sorry you had to see me like this.-
 
-"Oh. That's good," said Andrew, relief pouring from him like steam from a pressure cooker. He lowered his head. "I, uh... Enjoyed it too." He smiled awkwardly, looking around. "By the way, I'm going to sleep now. You told me that when I'm asleep you can move by yourself, right? So... That's good. You can go as you please! Is there something you want me to do before I fall asleep? You can stay here and watch stuff on the TV, or use the computer... Um. Whatever you like."
-
--Q.-
-
--Can I do anything before I go to bed?-
-
--A.-
-
--Can I sleep on your bed? If it's ok-
-
-Andrew read her response and blinked repeatedly, growing flustered. "Uhh, sure? If... If it's what you want?" He smiled nervously at her.
+"Fucking hell..." Muttered Beth, her eyes growing wider, her voice wavering. "No, it can't be... Is... Is this real?"
 
 -
 
-It was late now, and the bedroom was dark, lit only by the glow of the computer monitor. It illuminated the room just enough that she could see Andrew sleeping beside her, clutching his pillow with both hands. He looked different without his glasses and looking down the collar of his open pajama shirt she could see a few chest hairs peeking out, a sparse trail leading down his chest.
+Now he waited outside his house while Beth went back and forth inside, having her own private conversation with Helena. When she joined him in the backyard they had short, anxious chats of their own.
 
-He felt so warm, under the blanket with her, and when she reached her hand and touched his chest the heat increased, radiating off him. He grumbled in his sleep and turned around, mumbling something intelligible. Her body froze, unable to move for a couple of minutes before his breathing steadied once again and she could move. But even freezing didn't bother her too much. She now felt utterly at peace - enjoying only this tender moment - and wishing that it would last forever.
+"To think I was afraid she had run away with a pervy old guy or something..." Muttered Beth. She glanced sideways at Andy and let out an amused snort before adding, "well, at least you're not old."
 
-But that was the problem, wasn't it? This moment would not last forever. Soon Doll Time would end for her.
+Andy blinked at the sudden barb. "What...? Hey! I'm not... I never planned for any of this!" He stammered.
 
-And that is why Helena, very slowly and carefully, slinked out of bed and went to the computer. She was afraid for a moment that she wouldn't be able to find it, that the website would be gone, just like in the stories where the mysterious shop vanishes after selling the magic monkey's paw.
+Beth tilted her head. "So... You didn't, like... Have a hand in it at all? Accepted any shady deals? Made the wrong wish upon a star?"
 
-But no. It was there, clear as day.
+"No!" He protested. "A package was delivered to me one morning and it turned out to be Helena! Although... At that time I thought it was just a doll. I didn't know she had gone missing. But I swear, I didn't do anything before that!"
 
-Welcome to DOLL TIME
+She nodded. "Right... And so you decided it was a good idea to start fucking this doll you mysteriously got as a gift?"
 
-Our records indicate that your client code is: 094779-7150
+Andy blushed furiously, opening and closing his mouth, trying to find a way to explain to her, to justify what he had done... But was any of it a lie? He covered his face, feeling the burning shame cover his face. He couldn't dare to even see her. "It was stupid, I know..."
 
-How can we help?
+"Eh," she shrugged. "I guess a lot of guys would do the same in your shoes. Not a compliment, by the way." She then frowned. "But she told me that... She's ok with it? You and her. Which sounds weird to me. I didn't see Helena acting that way before."
 
-She browsed around the website, and read thoroughly whatever she could before eventually clicking the button:
+"I want her to go back to being human. You have to believe me..." He pleaded. "And I thought, since you're her friend...?"
 
-DOLL TIME EXTENSION
+Beth looked back at him and her expression softened, just a touch. "Yeah. Me too."
+
+The phone alarm rang, announcing the end of their waiting time, and Beth got up and went back inside to read Helena's reply. Andy waited outside, alone, until she came back.
 
 -
 
-Andy groggily got up from the bed and stretched before looking around him. Helena was no longer in bed with him. He blinked, then realized she had moved to the computer chair.
+"So..." Beth sat down on the floor beside him. His backyard had a variety of flowers and plants, both potted and planted, but the only chairs were a plastic, dust-covered stack in one corner. They looked like they had not been used in ages. "You told me that all she has to do is want to go back to being a human? And that's it? It's over?"
 
-"Oh..." He rubbed his eyes, trying to push away the drowsiness from them. "Sorry if I interrupted your computer time. Umm... You can use it some more after I leave." And he groped around for his glasses before putting them on. But when he glanced at the computer screen his eyes immediately widened, losing all their sleepiness in a moment of shock when he read:
+"That's what customer service told me," replied Andy.
 
-Thank you for extending our services!
+Beth raised one single eyebrow again, puzzled. "Customer service? The people that turned Helena into a doll, they have customer service?"
 
-You have requested:
+Andy laughed nervously and shrugged. "Yes?"
 
-DOLL TIME
+Beth shook her head. "Okay. Well, if that's the case... Then it's in her hands."
 
-To be extended for the following length: maximum
+"But... You can convince her, right?" He looked at her, eyes full of hope. "If anyone knows her best, it's you!"
 
-Your time with us will now end Dec 31, 2999!
+She didn't share his confidence, letting a small sigh before she spoke. "I'm her friend, but I can't control her choices. In the end, it's her decision, right? If she's happy like this and she says no... What can I do? Fuck..." And she looked away, frowning. She did not look pleased at what she had announced. There was a moment where neither of them talked, the silence broken when she turned to him and asked: "hey, do you have any cigarettes in the house? And a lighter?"
 
-Thank you for using...
+He shook his head. "No, sorry... I didn't know you smoked."
 
-DOLL TIME!
+"Haven't for the longest time," she grumbled, hugging her arms as she leaned back against the wall. "But... This whole mess got me dying for a smoke."
 
-"Wait... What?!" He raised his voice, stumbling towards the screen and re-reading what it displayed, making sure he understood what it meant for Helena. "Extended...?"
+"Sorry..." Andy shrugged. Beth was probably also struggling with the situation, like he was. This moment of weakness was comforting to him, made him feel less alone in his worries.
 
-He looked down at Helena and noticed the notepad was lying on her lap, as her body sat limp on the chair, blankly staring at the screen. There was a message there, long and wobbly, but still scribbled with care.
+"Hey." Beth turned towards him, concerned. "If she stays as a doll... Will you keep her?"
 
-Dear Andrew,
+"What?" He blinked. "Wait, what?"
 
-I decided to extend doll time indefinitely.
+She shrugged. "I'll be honest, I really hate the idea of leaving her like this while you fucking use her like a... Well. But... If she's actually happy here with you? That might be the best case scenario, fucked up as that sounds." Another small smile from Beth, rueful and bitter. "Not what I was expecting when I first came here. But... If she does stay as a doll, I'd prefer if she was here? I guess? But if she stays as a doll, can you keep her safe? Can you make her happy?."
 
-I don't want to go home. I don't want to be me again.
+"... That's a hell of a thing to ask," he replied, looking down, as if pressured by a sudden weight on his shoulder and on his mind. A responsibility for a whole other person.
 
-Sorry for doing this behind your back.
+"Yeah, I know," she admitted, her voice quiet.
 
-If you want to keep me, I would love it
+The alarm rang again, surprising them both. Beth got up, ready to go back into the house, when Andy stopped her.
 
-You could use me as much as you'd like.
+"Hey. Umm... When you come back, after talking with Helena...? Can you tell me more about her? About who Helena is, as a person? What she likes... Stuff like that? Maybe that will help us make a plan on how to help her!"
 
-And you can hide me when not using me. That's ok.
+And Beth broke into her first unambiguous smile, one without a trace of bitterness or sarcasm. "Sure thing!" She said, walking into his house before closing the door behind her.
 
-But I know your family will be back and you didn't choose this.
+-
 
-So if you don't want me, that's ok.
+It was getting late now, the summer sun taking its sweet time to set even as the hour grew late. It was still bright outside when Beth left his house, having talked both to Helena and Andy. She looked exhausted as she reported that she still had not convinced Helena, but she still managed to turn and smile slightly as she walked away.
 
-Return me to Doll Time. They will find someone else for me.
+"Given all the weirdos she could have ended up with, I guess it could have been worse," she quipped, a sarcastic smile on her lips.
 
-If that happens, I hope they will be as nice as you.
+"Uhh... Thanks?" He replied, unsure if she was serious or not.
 
-Thank you for using me and for caring about me.
+She stopped a few paces away and fully turned, her expression growing serious. "Good luck with the plan tomorrow. I'd help you if I could, but... I think you have to do it yourself. If you can't handle even that..."
 
-I liked it.
+"Yeah, I know," he agreed, his stomach twisting with anxiety as he thought of what the next day would bring "But... I really hope it convinces her that there's still good in being human"
 
-Tell Beth I'll miss her.
+"Hope so... If it doesn't work, then it's gonna suck to come visit your ass now and then to check up on her. Y'know. Make sure you're on the up and up." She tried to glare down at him, something made more difficult by her being more than a head shorter.
 
-Helena, (your?) Sex Doll
+Andy blinked, but then smiled slightly. "You're a good friend."
 
-His hand trembled as he held the note, and his eyes blurred as he read it. He shook his head, as if disbelieving the words that were written, and looked at Helena, begging her to confirm him. To tell him that what was written there was all real. "But... Helena? Why?" He asked. "Why would you do this?"
+She tilted her head. "HER friend. You just remember that." She pointed at him. "Stay on your toes." She then took a step back and waved goodbye, but a small smile broke on her lips, dispelling her glare. "Good luck. See you next time. And... Tell Helena I'll be there for her. Regardless."
 
-But Helena did not turn, speak or move her eyes, lifeless as they ever were.
+He waved back at Beth and closed the door. The house felt quieter with her gone, but Andy felt relieved after that visit. He hadn't realized how alone he had felt, until communicating to Helena and later Beth. Sharing his worries, exchanging ideas.
 
-[end of Doll Time chapter 6]
+He was still afraid, of course. Terrified, in fact. His heart clenched at the thought of his plan.
+
+But that was tomorrow. For now, all he needed to do was make himself a meal, take Helena to bed... And maybe one more thing.
+
+-
+
+Helena had a long day, although tiredness was not something she felt anymore. But still it was busy, and filled with many new emotions, even muted as they were. She enjoyed seeing Elizabeth again, although she saw that her friend was worried for her. She was touched by her friend's concern. Elizabeth was also so suspicious of Andrew, until Helena reassured her that she enjoyed being with him, and being used by him.
+
+And it was true. She yearned for it, even now. Was she always like this, or was this doll body to blame? She didn't know and she didn't want to know. Deep down, she wanted to be used, more and more and more, until al the sadness and the bad memories were wiped away, until she was nothing but a happy fuckdoll that desired only to be used.
+
+There were words for a woman, if she acted this way. Whore. Slut. Easy woman. Sinful. But she was not a girl anymore, just a sex doll. There was nothing wrong with wanting sex now, was there? That was her purpose.
+
+If Andrew kept her, that would be ideal. She might even see Elizabeth once or twice, in between being used. Wouldn't that be amazing? What else could she ever hope for?
+
+So when he returned to check on her, after her friend had left, he found a scribbled message in her hands, as she held it in front of her.
+
+-Now that she's gone, want to use my ass?-
+
+"Oh, umm," his face flushed, as always, and he glanced to the side. "Well... I did actually buy some lube yesterday. I, well... Didn't have a chance to use it. But maybe... We could try?" He swallowed nervously. "It's... It's ok, right? I don't want to... Disrespect you. Or see you as less of a person."
+
+The contrast between what they wanted made her amused and a bit sad, a bittersweet gulf that separated them.
+
+But when he returned, after leaving her alone, and found her on the bed, ass up and with her skirt flipped and her panties gone, she was delighted in how quickly he lost control. He opened the lube and squeezed plentiful amounts onto her ass, pushing inside with his finger. He even tried to be gentle at first, whispering in her ear she was a lovely girl and deserved so much better. Planting kisses on her back. Saying she was more than a doll.
+
+But soon he was fucking her so hard her body was being squeezed between him and the mattress, each thrust smacking against her ass as a wave of pleasure assaulted her. Her head was jerking this way and that with his relentless fucking, so - to her delight - he pinned her head and pushed it hard against the bed as he fucked her in the ass. Were she human, she would be struggling to breathe right now, but she had no such limitations. And so she enjoyed secretly cumming her brains out as he used her roughly, rejoicing at how she could make him lose control like that. He could not resist her.
+
+She loved it. Helena had found her calling. And deep in the throes of her orgasm, she hoped - almost prayed - that this was her future. That he would choose to keep her, and keep using her.
+
+It's all she wanted.
+
+-
+
+Andy woke up to the beeping of his phone, set to an alarm at 8:30 in the morning. Helena lay beside him so he turned and said good morning with a tentative smile, before getting up to turn the alarm off. The curtains were closed and when he turned on the light his eyes blinked repeatedly, readjusting, before he put on his glasses. "By the way," he told Helena, "we're doing something different today."
+
+"I know you want to stay as a doll. And... You already know how I feel about it," he spoke, as he slowly got dressed. "And, if I'm going to keep you. Then... I want to do right by you. Make you happy. Not just by, y'know... Using your body. But make you really happy. I... There's so much out there, Helena. It's such a big world, with so many amazing things in it! And, well... You're going to see them. One way or the other." He had finished putting on his clothes now, and turned to her.
+
+"Today we're going to the beach together." He announced, with a big smile that he hoped masked how nervous he felt. "I'll... be away for a moment, getting some clothes for you. But I'll be right back."
+
+When he returned, carrying some of his sister's clothes, she had a message hastily scribbled on the notepad:
+
+you don't ned to do that its ok so embarassi-
+
+"I WANT to do that," he emphasised. "And besides... If I can't even handle this little thing, how am I gonna keep you with me for long? I mean... At least some people around me will find out about you. For sure. How am I going to handle that? And also..." He looked away. "If... If I don't keep you in the end? And you decide to go? Then at least I want to give you one good memory, before we part ways." He looked back at her and smiled, desperation peeking from behind his eyes.
+
+"Will you let me do this for you? This one thing? Please?"
+
+-
+
+He had to take a quick, but mortifyingly silent, uber ride to bus station, and carry Helena to where the bus waited for passengers. Everyone who noticed him stared, some openly, others turning away quickly, as if pretending not to see him. Helena was dressed in regular clothes as well as a coat and shoes, courtesy of his sister's wardrobe. Her body was mostly covered, modestly dressed, but he still had to carry her wherever he went, and when he placed her down her glassy, blank eyes and limp body gave away her nature quickly.
+
+"I'm sorry, is... Is that a person or...?" A woman asked, middle-aged with long brown hair and a look of incredulity and disgust plastered on her face.
+
+He laughed nervously. "It's, uh... A prank. From a friend. Don't worry about it, it's just a doll."
+
+"I see..." She said, although she did not look the least bit relieved, moving quickly away from him. He felt the burning shame turning his face crimson, he felt everyone's stares and it took all his willpower to not fidget. To not look back at them. To stay here instead of going back home. He squeezed Helena's body for comfort, reminding himself of who he was doing this for.
+
+The bus driver soon arrived and everyone got on the bus. He gave Andy a long hard stare, glancing at his tickets for two seats before looking at Helena, but eventually he waved him inside with a disgusted look. Andy hurried quickly to the back of the bus, with Helena in tow.
+
+At least the rest of the bus ride was mercifully quiet, although he still felt others sneak glances towards him, some confused, others disgusted. He covered his face with his hands and pretended not to notice. Some whispered.
+
+This was always his greatest fear: being the center of attention. Humiliation. Shame. He felt his painful memories coming back. Of proposing to a girl, getting rejected. Trying to impress her with a public stunt, something silly and stupid, trying to show off a backflip to her. Failing miserably. Hitting her accidentally in the face with his foot, in front of everyone. Embarrassment. Guilt. Others laughing at him.
+
+But if Helena could silently endure her pain, then so could he.
+
+-
+
+It was a long ride to the beach, 3 hours stuck on the slow-moving bus. But when he finally arrived, the sight of the blue sea stretching into the horizon while still close enough to batter him with the crisp smell of salt was almost enough to make him forget the painful trip.
+
+"Look, Helena," he whispered, trying to adjust her head to face the sea with one hand while the other awkwardly carried her body. "We're here!" His heart beating fast as he wondered how she felt. Of course, she could not respond; her face remained blank, her body unmoving. But he still managed a smile as he slowly navigated his way closer to the shore.
+
+Was she happy? Was she in awe? He had no idea... But at least he could imagine.
+
+He set a blanket on the sand where he and Helena now sat, basking in the afternoon sun, although it took some work to adjust her pose so she wouldn't topple over and her head was facing the sea. He remained beside her as he too gazed at the shore, watching as people swam or relaxed near the waves that lapped the beach, steady and slow in their ebb and flow.
+
+People were still staring at them though, some secretly, some openly. A few with amused smiles, barely suppressed. Others with disgusted glares and disapproving mutters. He heard a child point at Helena and go, "mom? What's up with her? Is she dead?" before his mother pulled him away while muttering furiously. He felt his ears burning from the shame as he curled up, trying his best not to look anyone in the eye.
+
+"Not bad weather for going to the beach," he whispered to Helena, trying not to make it obvious. Keeping calm. "Not too warm, not chilly, and not a raincloud in the sky. Hmm... My family used to bring me to the beach on days like these." He let out a soft chuckle. "Didn't like it much. I mostly hung around on the beach, eating popsicles or playing handheld videogames. But chilling like this, in the sun... I kind of see the appeal now."
+
+He inched a bit closer, still looking at the sea, torn between his fear of attracting too much attention and his desire to be close to her, to support her. "I hope you're enjoying it though." He glanced at her face, still blank as always. "I... Hope this doesn't sound pushy, but... I wish I could have seen your reaction when you saw the sea for the first time. I wish I could know you're enjoying it. Talk to you." He bit his lip. Was this too accusatory? Preachy? "But... No matter what you choose, we'll make it work. And... I look forward to hearing from you later. Hope you're happy. That's all I want."
+
+No reaction from her. However he noticed others looking at him, and he pursed his lips tight and looked straight ahead. But secretly he brushed his fingertips against hers, the tiniest show of support, of affection, he could muster while in a public place.
+
+They had been at the beach for barely an hour when he heard a car stop some distance behind him, and a hubbub of whispers swell enough to make him turn. It was a police cruiser, stopped at the edge of the beach and with its two occupants slowly walking towards him. He turned around immediately, nervous sweat running down his forehead. He prayed that they had been called here for a different reason, that they might pass him by if only he didn't make eye contact, didn't attract any attention to himself. He gripped his own shirt sleeve as his body tensed, his mouth as dry as the sand underneath him.
+
+"Sir?"
+
+He shouldn't have been surprised, but he still jolted as he turned around to see the two policemen standing next to him, all stern expressions and rigid body postures. "Y-yes?" Stammered Andy.
+
+"We've got word of some..." The policeman glanced at Helena, before finishing, "... inappropriate behavior going on here."
+
+"What is this person-looking thing beside you, sir?" Asked the other policeman, crossing his arms.
+
+"I, uh... This is... A prank! One of my friends, um... I lost a bet and... I had to... Bring her here to the beach and..." Andy's plan of keeping calm quickly crumbled under the pressure, and his prepared excuse came in fits and starts before sputtering down like a punctured balloon. Under the policemen's suspicious glare, he fell silent.
+
+"It's a sex doll, isn't it?" Asked one of them, prodding Helena with his foot. She almost toppled down before Andy rushed to grab her.
+
+"I'm... I..." He swallowed, fighting against the anxious lump in his throat. "I'm not... Doing anything..."
+
+"Can I see some ID, sir?" Asked the other policeman, interrupting his excuses. Andy silently took his wallet out and fished his card before handing it over.
+
+"Andrew Rybak," read the officer, looking at him, then back at the ID. "You under any kind of medication right now?"
+
+A roundabout way of asking if he was crazy. Andy slumped his shoulders and shook his head.
+
+"How about we have a talk back near our cruiser? C'mon," asked the first officer, taking by the shoulder and pulling him, gently but firmly, away. "Leave that thing there for a moment."
+
+His eyes widened and he looked back at Helena and saw - him faraway, being questioned while others laughed and stared at Helena. Maybe a child would poke at her, maybe an angry parent might do something worse. A stray dog could bite her, drag her away. And they would laugh at him while he chased after Helena and pleaded, crying to them that she was real. That there was a real person in there and they were hurting her and no one would believe him -
+
+"No!" And he broke from the policemen's grip and rushed towards Helena, struggling to lift her. "I... I'll go with you. Ask what you want! Just... D-dont..." He blinked his eyes rapidly, cursing himself. No, don't cry right now. Whatever you do, don't cry. "I c-can't... Leave her alone."
+
+"Come now, sir-!" Admonished the officer, grabbing his shoulder more firmly now and raising his voice. The other one stopped him with a gesture, however, and stared at Andy, sunglasses covering his eyes.
+
+"Sir, we don't want trouble here," he said. "Do you want trouble? I don't think you do... So why don't you just be on your way with your... Girl there. And stop causing a scene."
+
+Everyone was looking at them now. He held Helena tighter, her body against his as he trembled. He wanted to protest, to tell them he wasn't doing anything wrong, that this was important.
+
+"... Ok," he whispered, his voice hoarser than he'd like. "I'll go."
+
+And, under the watch of the two officers, and the curious stares of the other beachgoers, he slowly folded and put away the blanket before carrying Helena and walking away from the beach, looking down the whole time.
+
+He was struggling not to cry, and he hated himself for that. For being so weak. So nervous. Somehow, things had gotten even worse. And Helena... What if she was hurt by this? Was she going to retreat even further into a doll? God, he had fucked up. He had messed everything up. It was over...
+
+But he couldn't give up. Not when someone was counting on him.
+
+"Uhh... That could've gone better," he whispered to Helena as he struggled to carry her, putting her slowly down on the sidewalk before pulling out his phone. "B-but I'm not giving up! Let's see if there's a beach near here that's more empty! I-it's not over yet." He flicked through his phone, muttering to himself. "Hm. This one... No. How about... Oh! There, this one here! Says it's pretty much empty! And... Oh. It's... About an hour and a half's walk away from here. Um. No public transit either. Figures..." He took a deep breath and put the phone in his pocket before lifting her body up again.
+
+"Well! Let's get going then!"
+
+-
+
+His enthusiasm proved not enough of a substitute for physical endurance, as he carried Helena to the other, far more distant beach. The sun bathed both in merciless heat, and in Andy's case drenching him in sweat, and the exertion of carrying her for long stretches of time forced him to put her down every so often for a break. The sidewalk soon disappeared, forcing him to walk on the side of the asphalt road, although the cars also diminished in frequency the further away he moved from the beach.
+
+As he carried Helena he babbled, telling her stories of old family vacations he was a part of. Joking that he was getting his exercise in, getting jacked for the summer. Anything to ease her worries, and maybe his own as well.
+
+But all this combined to make what was supposed to be an hour and a half of walking into triple that amount, much longer than he expected. And when he staggered onto his destination at last, exhausted, he let out a grateful sigh as he put her down at the edge of the sand.
+
+"There... We go! Ahhh... Wow. We made it," he adjusted his glasses, smiling. "Took a while, but... Oh, it looks empty! That's great! I mean..." And he looked around him, only for his smile to falter.
+
+The beach was half-covered in trash, brought in by the current and the tides as they deposited torn plastic bags, bottles and other detritus onto the grimy shore. This was the reason the beach was so empty. And the sun was low in the sky, with barely another hour before it would set, making him and Helena cast long shadows on the dismal beach before them. There was no time for them to go somewhere else.
+
+"Well... At least it's empty!" Rallied Andy, pulling Helena into a sitting position on some concrete stairs leading down to the beach before squatting beside her. "I mean... It's not as pretty as the other beach, but... The sea is still beautiful! Right?"
+
+Her face was still, frozen in a blank expression, lips slightly parted. His smile wavered, then faltered entirely and he slumped down beside her.
+
+"I messed up," he confessed. "Sorry, I... I really tried. Shit!"
+
+He opened his mouth, then closed it. This was serious, he had to choose his words carefully. And he had to remember: this was about Helena.
+
+"Sorry if this wasn't... Yeah, it wasn't great. I wanted to... Make a good memory for you. Um... B-but!" He took a deep breath. "But I want to let you know... I'm not giving up. On making this happy memory."
+
+Andy took a deep breath, before continuing. "And... I'm not giving up on you either. However I can, I'll... I'll try and find a way to make it right. To make you happy. Because you didn't deserve to get the cards you got in life, you know... And - ugh, this is stupid, but - I couldn't bear to just abandon you. I can't! So... Unless you don't want to be with me anymore... Or if you choose to go back to being human... Then... You can stay with me. Whatever happens, even stuff like today. I'll bear it. And... And I haven't given up yet. Some other day, for sure, we're going to the beach and have a good time. I promise." He looked at the trash-filled beach as he spoke, used to these one-sided conversations by now. But despite the exhaustion, his heart felt at ease when he was done talking. He had reached a decision, and he had voiced it aloud. It was done.
+
+He sat silently next to her, the only sound being the waves brushing against the shore. Relaxing for a moment, gathering strength for the walk back.
+
+"Alright." A voice beside him, sad and feminine. "You win."
+
+He turned, startled, and his heart skipped a beat, he froze in place. Because beside him, hugging her knees with her arms while looking sadly at the beach, was Helena. And before his astonished eyes, she blinked, once, and her eyes looked back at him.
+
+-
+
+Helena took a deep breath, as emotions and sensations all rushed back in. The smell of sea and refuse, the rough concrete under her, the hot sun on her skin. But also her fear and apprehension of her impending future, and the complicated feelings that swirled around Andrew. It was all almost too much, and she shut her eyes tight and hugged her knees closer, bracing for being overwhelmed by everything she felt.
+
+It was a familiar sensation, in a way. She had been overwhelmed before. And she did what came naturally, forcing a smile and composing herself before she opened her eyes and looked at him.
+
+"Yup! Back to my old self!" She pinched her own cheek and frowned. "Ow! Yup. Everything working alright!"
+
+He'd gone through a lot for her, and was ready to sacrifice so much. It wouldn't do for her to look sad or angry... Or whatever it is she felt right now. She had to look grateful. She had to smile.
+
+But he looked at her skeptically, and although he smiled back it was a weak, precarious one. "I'm really glad you're back. But... Are you sure you're ok?" He hesitated. "It's ok for you to not be ok. You don't have to pretend for my sake."
+
+She blinked, surprised, even as she maintained her smile. Had he grown to know her this well? "No, no!" She insisted out loud. "I feel fine! A bit of a shame, but I'm looking forward to... Going back..." Her smile faltered as she said those words, showing the cracks in her false enthusiasm. She laughed awkwardly at him, rallying, trying to hold the illusion long enough...
+
+But no. It was too much. Her shoulders slumped and her smile faded. She had to look away from Andrew, gazing at the trash-filled beach instead. "Thank you for what you did for me though," she clarified. "And... I'm sorry. For everything at the beach, and carrying me all this way." She squeezed her knees tighter. "I tried turning back when you were with the police, but couldn't. I don't know why. But I swear, I didn't want to hurt you like that."
+
+He shook his head. "No, no! It's ok! I chose to do what I did! And... I meant what I said before. I'm not turning my back on you, human or not."
+
+"Look, it's ok! You did enough for me already!" She said, louder than she intended as anger flared inside her. "Trust me, you don't want to get tangled in the shitty, messy... Stuff going on in my life! What are you going to do? Save me? Rescue me from my family? No! You did it, I'm a human again! That's enough!"
+
+He seemed taken aback, and it was his turn to look away. She felt guilty, after her outburst, especially since Andrew did not deserve that. But she still felt too angry to apologize, and wouldn't it be easier if he hated her? Kept his distance from her? Then she wouldn't need to worry about him.
+
+"Do you... hate me?" He asked, his voice low. "Or are you angry at me? Now you're human again? Because... I would understand if you were angry. And... If that's the case, I won't bother you ever again." He blinked rapidly, not daring to look at her.
+
+She felt a pang of regret and sighed. It would have been so easy to leave things like that. "No... I don't hate you," she admitted. "But you don't have to worry about me. I've survived until now, haven't I? You don't have to..." Waste your time with me, she almost said out loud, stopping the words on the tip of her tongue.
+
+"Then... Can I help you with your family situation?" He insisted. "I've checked. Since you're over 18, you can move out and go wherever you want. They don't have custody or anything." He hesitated again. "If I talk with my mom and convince her, maybe you could move into my house? N-not as my... Girlfriend or anything! Just, y'know, a place to live?"
+
+"I can't put that burden on someone I don't even know!" She bit back, her anger flaring again. "And who would pay for my university tuition? You or your family again?" She buried her face in her hands, taking another deep breath. She felt like she was about to cry, and she was NOT going to do that. She took another deep breath and made sure she was ok before uncovering her face. "No, Andrew... No, it's ok. I can't do that to someone else. I'll... I'll suck it up. I've done so already, haven't I?"
+
+"I've thought about that too!" He said. "And I talked to Beth. She'd be willing to help too! We could all work during the summer and maybe part time while we study, and pool the money to pay for your stuff! There's also loans. And with your grades and how smart you are? I'm sure you can get a scholarship pretty easily too!" He reached to place a hand on her shoulder, but thought better of it and brought down his hand. She wished he had touched her though, even if she wasn't quite sure she was ready for it. "You don't have to go through this alone," he said.
+
+"That's... I..." She frowned, then turned away. "Why do you care so much about me anyways?" She asked, her voice small and uncertain.
+
+"Because you're hurting. And you were hurting before, and I didn't notice and I feel bad and..." He faltered, then shrugged. "I don't know. It's unfair. You're an awesome girl and you deserve better than that. I always thought you were amazing, even before... And I think you're even more amazing now."
+
+She scoffed. "You're just saying that to be nice."
+
+"No, I mean it!" He insisted. "Even before all this, I thought you were cool! Way too cool for me! Didn't know you too well back then, but I thought you were super smart, and... Always so kind. And... " He hesitated, before adding, "... and hot."
+
+She looked at him, trying to figure out if he was lying. "You thought I was hot?"
+
+"I, um... Yeah? Most guys would think so." He said, as if stating the obvious.
+
+"And... Now that you've seen all of me. You still think so?" She asked, slightly embarrassed as she now remembered how he had used her.
+
+"Hell yes!" He replied quickly, before realizing how it came across. "Ah, I mean... You were, um... I'm sorry. About before, when you were..." And he began to blush and look away in that awkward and embarrassed way that she found so cute.
+
+She felt a desperate need to hug him tightly. To kiss his lips, to feel his warmth, to let him know how she felt... But she stopped herself. She was no longer a sex doll, she was a girl. So instead she laughed, a touch of bitterness in her voice. "Bet you miss the doll version right now, huh? None of this stupid drama shit, just a nice set of holes!" She joked. But she wasn't really joking.
+
+"I like you." His face went pale when he realized what he had said, but he didn't look away or back down this time. "I mean... I like you like this. As a person." He smiled. "I'm glad you chose to be a person again. And... If it's ok. I'd like to... Get to know you more?"
+
+There was a moment of silence, made painful by the complicated feelings roiling inside her. She bit her lip, willing herself to speak. "I like you too," she said.
+
+"Oh!" His face brightened immediately. "I-"
+
+But she interrupted him. "But I don't know if it's going to work out between us..."
+
+"Oh..." He deflated again as quickly as he brightened before. He tried keeping his face neutral.
+
+"I told myself... Back when I was with my family... I promised myself that I wouldn't jump into the first option I had just to get away from them. It wouldn't be fair, for me or for the other person! And honestly? I don't even know if it's going to work out between us! Maybe you'll hate me! Or maybe you'll be unhappy but you'll still feel obligated to stay with me out of pity or... I don't want our relationship to be based on that. On trauma. On saving me. Like it's inevitable that we get together." She got more and more agitated as she spoke. "I'm sorry! I'm sorry that I'm not like... Perfect? I'm messy, and I don't know what I want and... I'm scared, and..." Her vision blurred, and she stifled a sob as tears welled in her eyes. She tried restraining them, clamping her hand over her mouth, but more sobs broke out, followed by tears, pushing themselves out of her regardless of her wishes, involuntary.
+
+She felt him gently touch her hand, then take it. Helena rubbed her eyes furiously and looked at him.
+
+"That's okay," he said with a small smile, encouraging her.
+
+She hiccuped, then wiped her face. "Ugh... I'm a mess."
+
+"It's ok to be a mess."
+
+"Don't even know why I'm crying..." She muttered, wiping her face more, a stifled sob breaking out.
+
+"Well... At least you can cry now... Right?" Said Andrew. He gave her hand a tiny squeeze.
+
+She chuckled, then laughed out loud, fresh tears coming out of her. "Yeah... I guess I can." And fresh tears rolled, but these were less sad
+
+He sat beside her while she cried, their hands touching as they shared a tender moment together on those hard concrete steps leading to the dismal beach below. The sun was about to set now, and when she looked at the beach and the sea, even with the trash and and the smell, it was still one of the most beautiful things she had ever seen.
+
+Her feelings were still complicated, still turbulent. But somehow she felt something she had never felt before: a feeling that things would work out. That maybe her tomorrow could be better than she hoped it would be.
+
+And fresh tears rolled down her cheeks as she smiled, trying to enjoy that moment, even complicated as it was. The gorgeous view, the warm, salty air and the tiny tenderness of his fingers that connected him to her. It was a complicated, bittersweet moment, and the sweet mixed with the bitter and the bitter with the sweet, until she couldn't tell which was which.
+
+THE END
